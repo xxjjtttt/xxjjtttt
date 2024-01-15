@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @xxjjttt
+- 👋 Hi, I’m @xxjjtttt
 - 📫 xxjjtttt@outlook.com or 2177347663@qq.com
